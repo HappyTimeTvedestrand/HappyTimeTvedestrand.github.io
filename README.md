@@ -1,2 +1,2 @@
-# Happy Time Tvedestrand Pizza
+# HappyTimeTvedestrand Pizza
 Official Website Page
